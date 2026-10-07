@@ -1,6 +1,6 @@
 <div align="center"> 
-<br> if some of these dont eork blame github bro idk how this works
-<br> STAMP / BUTTON COLLECTION YAAAAAAAAAAAAAAAAAAAAAAAAAAY
+<br> if some of these dont eork or the sizing  is weird blame github bro idk how this works
+<br> STAMP / BUTTON / BLINKIE COLLECTION YAAAAAAAAAAAAAAAAAAAAAAAAAAY
 </div>
 <img width="100" height="64" alt="tumblr_7a78d310c2082b569615d4f888cfcbd3_72192898_100" src="https://github.com/user-attachments/assets/2fd1327d-7b49-4be2-b1db-f1f80ff0b41a" /> <img width="99" height="56" alt="tumblr_f13724ba93db6e68410fbcc5b99eb9da_3b63cc04_100" src="https://github.com/user-attachments/assets/c0998ce9-561b-41f2-a651-678c37c6643a" /> <img width="99" height="56" alt="tumblr_be96e4893f04aa3df59ab84681a413f2_45699270_100" src="https://github.com/user-attachments/assets/16cb9501-990c-402e-a8d1-1513e17b29d7" /><img width="99" height="56" alt="tumblr_474152eeec1f39be04a68e0f84f3c0d3_2e64272b_100" src="https://github.com/user-attachments/assets/4775c33f-f809-4957-a41d-a74b7798b633" />
 <img width="99" height="56" alt="tumblr_66871165180b90fb3e079bd9c5f48df3_c770238f_100" src="https://github.com/user-attachments/assets/c5b8667c-cda5-40aa-9949-2a2074bdc3c1" /><img width="99" height="56" alt="tumblr_7336c8f0d254237f8eb33d769ff5f711_f127da72_100" src="https://github.com/user-attachments/assets/4af0c0f4-025a-4c6d-97a4-4266900cd605" />
